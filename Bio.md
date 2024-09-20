@@ -1,0 +1,7 @@
+- 👋 Hi, I’m Wasim Khan
+- 👀 I’m interested in HTML and CSS Specially Frontend 
+- 🌱 I’m currently learning HTML and CSS
+- 💞️ I’m looking to collaborate on to learn HTML and Css
+- 📫 How to reach me just text me here or on whatsapp +923447000057
+- 😄 Pronouns: he, him 
+- ⚡ Fun fact: and fast learner
